@@ -27,7 +27,6 @@ Keywords: Petr Stančík, books for children, author's text,  detective story, c
 
 ## Book Design and Promotion
 
-The bachelor's thesis takes the form of a real contract from a well-known Czech writer Petr Stančík who writes books for children and adults. Provided by a text from the author, it tells the story of a young girl who has experienced cyberbullying at the internet. The aim of this work is to create illustrations for a detective story and increase interest in books by young readers.
 
 This bachelor’s thesis investigates the aesthetics and process of book design and the promotion of readership to a younger audience and culture through a detective story about a young girl who experiences cyberbullying, written by the well-known Czech children and adult book author Petr Stančík.
 
